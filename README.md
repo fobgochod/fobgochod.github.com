@@ -1,1 +1,0 @@
-# fobgochod.github.com
